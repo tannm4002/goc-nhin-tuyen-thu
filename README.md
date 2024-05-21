@@ -1,2 +1,1 @@
-## _PH38499_
-## _Nguyễn Minh Thuận_
+## _Góc nhìn tuyển thủ_
